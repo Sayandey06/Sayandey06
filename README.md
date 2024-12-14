@@ -3,6 +3,8 @@
 - 🌱 Currently working on Veloguard AI with small team members 
 - 💞️ I’m looking to collaborate on my latest venture 
 
+
+- Looking for tech savvy people in Veloguard 
 - 😄 Pronouns: he /him 
 
 
