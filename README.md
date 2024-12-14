@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sayandey06
-- 👀 I’m interested in Android Development and Automotive AI 
+- 👀 I’m interested in Android Development and Automotive AI
 - 🌱 Currently working on Veloguard AI with small team members 
 - 💞️ I’m looking to collaborate on my latest venture 
 
