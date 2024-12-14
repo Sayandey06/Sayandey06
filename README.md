@@ -4,8 +4,13 @@
 - 💞️ I’m looking to collaborate on my latest venture 
 
 
-- Looking for tech savvy people in Veloguard 
-- 😄 Pronouns: he /him 
+- Looking for tech savvy people in Veloguard
+
+- 😄 Pronouns: he /him
+
+- - Send your Inquires and DM if youre interested
+  📨 veloguardai@gmail.com
+ 
 
 
 <!---
